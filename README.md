@@ -15,4 +15,7 @@ All the projects i have made so far
 ### here is my answer - 
 
 
-# please look at my other MS WORD File to see the insight 
+# please look at my other Image to see the insight 
+
+
+
